@@ -12,10 +12,10 @@ _I have gone many different paths while growing up, until I ended up back with w
 - *It was my first project and even though it’s very rough around the edges I’m proud of it*.
 
 
+### Other things I work on
 
-Most of the time now I practice gesture drawing:
 
-
+Most of the time now I practice gesture drawing.
 My goal is to make my ideas come to life for others to enjoy, just like I enjoy in games or stories.
 
 
