@@ -15,7 +15,7 @@ _I have gone many different paths while growing up, until I ended up back with w
 ### Other things I work on
 
 
-
+![Gesture drawings of people](img/Gesture.jpg)
 - *Most of the time now I practice gesture drawing*.
 - *My goal is to make my ideas come to life for others to enjoy, just like I enjoy in games or stories*.
 
