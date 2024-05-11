@@ -1,7 +1,7 @@
 # First impression
 
 _Hello there, I’m Tomas,_
-_aspiring 24 year old artist who loves playing games, listening to music, reading manga,manhwa, playing chess, challenging my own brain and delving into storytelling._
+_aspiring 24 year old artist who loves playing games, listening to music, reading manga, manhwa, playing chess, challenging my own brain and delving into storytelling._
 _I have gone many different paths while growing up, until I ended up back with what I enjoyed very young. Drawing. Since I have gotten on this path recently I don’t have projects that I have worked on. One that I would mention was my first +30 sec animation._
 
 ## Featured project
