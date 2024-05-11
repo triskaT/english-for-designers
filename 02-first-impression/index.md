@@ -21,7 +21,7 @@ _I have gone many different paths while growing up, until I ended up back with w
 
 
 
-
+### Chess
 ![Chess pieces](img/ChessSet.jpg)
 - *As I mentioned I really enjoy playing chess. When I was very young around 7 years old my grandpa taught me how to move the pieces. Now 14 years later I came back to it and started learning chess properly. In the past 3 years I have gotten to around expert level and I am hoping to improve and play against stronger opponents*.
 
