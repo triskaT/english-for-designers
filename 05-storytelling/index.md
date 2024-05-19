@@ -1,6 +1,9 @@
+# Comparing yourself to others
+
 Listen to the [story](assets/Audio.mp3)
 
-Comparing yourself to others
+Watch the [video](https://drive.google.com/file/d/1-4ZoBs-XdwdBxjet1jJZz9F8rEuSSH89/view?usp=drive_link) (audio+slides)
+
 
   Hello I am, Tomáš Tříška And I would like to talk to you about comparing yourself to others. Everyone has been compared to other people. Especially while growing up as a child. It could be between siblings. Other family members or childhood friend. It's very natural thing to do, and yet it can be harmful to us. 
 
